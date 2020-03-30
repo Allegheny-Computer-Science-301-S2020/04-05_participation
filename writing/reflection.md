@@ -9,6 +9,8 @@ TODO
 ## Questions to answer
 
 ---
+Article: https://www.rollingstone.com/culture/culture-features/plastic-problem-recycling-myth-big-oil-950957/
+
 Questions-in-blue:
 
 0. In a few sentences, summarize the article.
